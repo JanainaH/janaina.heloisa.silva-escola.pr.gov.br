@@ -1,1 +1,1 @@
-# janaina.heloisa.silva-escola.pr.gov.br
+Ola meu nome é JAnaina Heloisa da Silva tenho 15 anos faco aniversário dia 01/03/2009, sou uma estudante do ensino médio é estou me desenvolvendo na linguegem JavaScript, vou utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos escolar e utilizar meus projetos para postagens escola ou publicidade Obrigada pela atenção meu público adeus até a próxima pontagens.
